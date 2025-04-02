@@ -1,6 +1,4 @@
 ---
-title: Welcome to Quartz
+title: Slate Wave - A Dungeons and Dragons campaign
 ---
-
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+Have Fun!
