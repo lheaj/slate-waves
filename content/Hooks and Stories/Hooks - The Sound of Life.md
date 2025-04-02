@@ -1,0 +1,13 @@
+Jerry McRolamo Chicken was a little bearded gnome without prospects in life but filled with hope to find some one day! If he could only set aside his harebrained business ideas and his dream of wooing Melinda, the alluring gnome bartender at the “[[The Jagged Lady]],” perhaps things would change. Despite his streak of bad luck, his upbeat attitude kept him pressing forward. But recently, things had taken a turn for the worse. Desperate to lift his life out of poverty, he seized upon a wild idea to sign up for a scientific trial. The pay was good, and that's what mattered.
+
+A man dressed in black, wearing a peculiar mask, offered Jerry 20 gold pieces to inhale a pot of dark fumes. What could possibly go wrong? As it turned out, nothing went catastrophically wrong—no explosions, no permanent injuries. Jerry didn't feel any immediate side effects, nor did he notice anything a day later. He took the gold, walked away, and that was it.
+
+He returned to his dismal life. A terrible, terrible life. What did he live for, anyway? He could only think of food, finding a job, and maybe a place to sleep. Did he ever dream of anything else before? Sometimes, late at night, a faint memory of a blonde, muscular gnome soaring on a riveting machine, arm around a beautiful lady, stirred something within the poor test subject. But he'd wake to another day. Just another day.
+
+Jerry McRolamo Chicken did indeed find a job a few weeks later. He managed to build a family, buy a house, and earn a salary. Some would say he had pulled through, but to Jerry, it felt like being dragged along by the flow of a murky river, sweeping away everything else except what he was supposed to be doing, in a current of grey, colorless water.
+
+Today, as always, the gnome was walking down to the factory. Ever the early bird, he took the short downhill path that passed by the “[[The Jagged Lady]],” a small, inconsequential pub within the city of Smallport.
+
+But as he walked today, his feet somehow lost their lifeless rhythm and began to move at a different pace. He turned his head, as if waking from a dream and faintly regaining consciousness, as the sound of a large, deep, rich, and warm brass instrument filled his ears, permeating his mind with bronze and rhythmical vibrations.
+
+He almost stepped into the [[The Jagged Lady]], but then he blinked, somehow forgetting what was happening as the music stopped. His feet resumed their march. Another day at the factory awaited Jerry McRolamo Chicken. Just another day.

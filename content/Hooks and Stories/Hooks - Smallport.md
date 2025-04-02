@@ -1,0 +1,13 @@
+Step into the picture and walk, not as you but as your character would. The locale is choking with people from any species and trade, legitimate and not. As you try to push your way through a dense throng of orcs sailors,  chaotically clamouring for a glass of the famous Jadded Lady Rum at the bar, you feel the music permeating every joint in your body. The mix of notes and yells amalgamates into a lid that covers your ear from even your own thoughts. It’s hard to distinguish whether it’s a saxophone’s cry or the soft words of an elf passing by, with round, glossy eyes, and a blond braid shimmering with the colour of a night starry sky.
+
+Is it the drum? or is it that dwarf doing, the one with a head so hairless and clean you could see your reflection in. He’s beating a fist at the height-table demanding his Fumbled Butterbeer, while counting a stack a gold coins, after selling what looked to be a miniature cannon ball to a hooded figure. The buyer, not taller than human teenager, covered his features completely, save for holes in the fabric for a pair of demoniacs, curved, horns peeking through.
+
+You follow the piano sound to the crouched figure of a goblin, drinking from a large crystal glass, staring at an image in his mind, his jaw clenched with anticipation. Dressed in a tweed suite, he’s tapping his own green callous index and thumb onto a wooden chair. He runs his palm through the felted jacket up to his thin neck, to adjust a spotlessly clean, red, tie.
+
+Finally, enough orcs push their way to the alcohol to make room for you to spy across the room, your eyes invade private conversations, romance, and business deals, until you see him. Standing tall amongst crowded tables, his eyes are running across the room scanning head-to-head, just like you. As the notice said, a yellow pin in the shape of a gleaming rose sits on his waistcoat. His hair, wavy and short, the shade of cherry blossoms decorated with silver barbs, shake and finally sit still as he fixates his gaze on yours, fogged by a pair of gold-plated glasses. You see a forced smile rise from his quivering lips, as pushes uncertain through a couple of arguing gnomes, almost slipping down in the process.
+
+“Ah! Y.. you must be the l… last one! Please c… come! T… th.. the others are already here!”
+
+As he shows you to a table encircled by dim lit figures, he sighs loudly through his vanishing smile, and continues:
+
+“O… Ok. So, here is the issue…”

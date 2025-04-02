@@ -1,0 +1,7 @@
+The party swiftly dispatched the cunning trickster [[Murray Goldtooth]] and his band of goons, seizing the charlatan’s dice and his ill-gotten gains in the process. After a night of respite at the [[The Jagged Lady]], the group immersed themselves in the town's fervor and anticipation surrounding [[The Curator’s Challenge]]—a deadly game where the rich entice the poor to risk their lives in hopes of escaping their dire economic circumstances.
+
+Marco enrolled the party in the challenge, convinced it might reveal crucial information about his missing friend and promising withdrawal was possible at any moment. As they entered the building, they spotted [[Garabatta]] and [[Borbor]] among the participants, along with a mysterious group of hooded figures wearing metallic animal masks, led by a short tiefling with an eye patch and a scarred face.
+
+Inside the museum, where the challenge unfolded, the group navigated through the aquarium room and the library, carefully avoiding the traps laid within. Reaching the greenhouse, they witnessed a brutal confrontation between Garabatta and Borbor, each fighting alongside their respective groups. Garabatta accused the dwarf of causing the disappearance of a halfling he had once been romantically involved with.
+
+Amidst the chaos of the battle, the party inadvertently triggered a trap that unleashed an Assassin Vine, intent on eliminating every living presence in the room. Despite the peril, the group managed to overcome the menacing plant, not without considerable effort.

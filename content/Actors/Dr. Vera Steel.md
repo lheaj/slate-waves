@@ -1,0 +1,22 @@
+Vera is a short slim woman, dressed in a half plate armor with a golden cross emblazoned within the chest piece. Her hair are golden and wavy, covered at the top by a roughed up conical red hat. Her face is partially covered by metals plates as if an armour was molded onto her skin. Her neck is also mechanical and metallic, with interlocking metallic plates and pneumatic gums to meticulously mimic the functioning of human muscles.
+
+Vera is a survivor of both [[Rustlung]] and [[Metallosis]], she was saved by young prodigy doctor named [[Dr. Elen Voss]], and since her recovery, she has dedicated her life to tending for the sick at Smallport. She acts as general manager of the [[Rivet Recovery]] Hospital but is also the self-appointer defender of the establishment and won’t shy away from macing to the face any bandit eyeing through the hospital supplies.
+
+Yesterday, a patient from a cargo ship arrived in dire conditions. She wasn’t present to see them and only speaks about reports given to her. The patient was shivering with high fever and mumbling meaningless sentences, he would occasionally burst into laughs and had convulsion fits so strong he had to be restrained. This early morning the nurse tending to him was found dead, her head split with an iron bar ripped clean from the patients bed. The Hospital was shortly after evacuated.
+
+ can’t leave the patients without her stewardship as many of them have nowhere else to go but needs someone to go inside and deal with the issue.
+
+While speaking a man comes to her and pleads for help as his father and mother, both elderly, are missing and he thinks they are inside the building unable to leave.
+
+Vera will ask for the following things:
+-            Restrain and deal with the rouge patient.
+-            Find out who he is and how he got there.
+-            Rescue the elderly couple.
+
+Vera will reward:
+
+- 20gp for every task accomplished.
+- 1 common health potion.
+- 1 scroll of guiding bolt.
+- [**_Clockwork Amulet_**](https://www.dndbeyond.com/magic-items/27042-clockwork-amulet)
+

@@ -1,0 +1,17 @@
+The night was dark, as it always was in the depths of Nept. Though the sun never shone brightly here, its light often lent a faint warmth that I found comforting. Not that night. My brethren and sisters asleep within their crystal-silk white tents pitched at the bottom of the ocean, held above the sands like cocoons around trees, embraced by the corals and reefs that shielded our home from the abyss outside.
+
+It had been a long day. I had just managed to convince Maris, our steadfast guide, to refrain from sending our youth above water. She and her circle were adamant that we should continue the tradition of letting our people experience the outside world, learn, improve, and return to build and progress a better society, our society. But the world outside has changed. It has never been all lilies and laughs, but now it is corrupted beyond recognition. We have nothing to learn from them anymore, and we must close our reefs further to protect our families from the pollution seeping into our tribe.
+
+The issue with the few sickened would have been resolved soon, the Tidal Clerics would cure them in a matter of days. This was even more reason not to send our own above. What if they too returned with bad breath and skin turning to metal?
+
+That night, after what I had considered a victory for our people, something changed irreversibly. As I neared my tent, I saw Alua, my dear wed-one, waiting for me, right outside. She was smiling—a smile of an happiness I did not understand. The corners of her mouth stretched higher and higher, while her eyes lacked the same sentiment. Something inside me did not recognize her, but love and muscle memory made me approach.
+
+In an instant, she lunged forward, spinning and swimming like a shark hunting a seal. I dodged her bite at the last second, but she was on me again in a blink. Her face close to mine in the dark waters, I could see her clearly now—her eyes were different, a moving dark wave within, purple and yellow, leaking fluorescence faintly webbing her visage like vines parasitizing an old oak.
+
+Her jaw snapped frantically, interrupted only by maniacal laughter at my fear. Only a few seconds passed, but the confusion in my heart made it feel like an eternity. My struggle continued in shock against her unexplained strength until, as swiftly as it started, it ended. Dalia's halberd severed my soulmate’s head clean, and she kicked her lifeless body away. I knew I should have thanked the patrol guard for saving my life, but in that moment, something within me hated her for killing my wed-one.
+
+I glanced at Alua's face—a soulless grin engraved on her visage. It still haunts me at night.
+
+There and then, I knew. I knew I was wrong. I knew we could not close ourselves off or protect our world from what was outside or above. My beliefs shattered, our life changed, it had already changed. We had to do something. It was time for some of us to leave, to fight, to understand, to learn again, and to protect.
+
+I’m old and my time exploring has long ended. I trust this generation will endure the new times ahead as our home and its destiny are in your hands. Whoever you are, I wish the tides be with you. But hurry, as our time is fast expiring.”

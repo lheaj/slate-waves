@@ -1,0 +1,10 @@
+
+As the Perison tax collector prepared to arrest the group of foreigners, [[Marlin Everstaff]] conjured an illusion, causing confusion among the guards and Warforged alike. This distraction led to chaos, with explosions, hammer blows, and displays of cowardice. Thom, unwilling to sacrifice himself for a cause he didn't truly believe in, tossed 50 gold pieces to the tax collector in exchange for a moment's respite. Fortunately, Marlin's mage hand swiftly retrieved the gold, returning it to the party's pocket.
+
+The group then followed [[Elias]], a young rebel fighting for freedom, through the sewers of Perison. She explained how her band resorted to hiding underground to escape the mind-numbing effects of the fogs, a weapon engineered by the witch to subjugate the populace to her will.
+
+Their journey through the sewers was far from pleasant. Apart from the polluted, murky waters and intrusive odors, the group encountered a Black Pudding lurking within an apprentice mage's canteen and an Otyugh demon prowling the tunnels. The tense battle with the man-eating monster left the heroes wounded and exhausted, forcing them to make a perilous escape through a bottomless drainage tube rather than facing the creature to the end. Marlin and Thunderfoot cast multiple webs to immobilize the demon, buying enough time for the group to escape.
+
+Elias then introduced the group to her rebel comrades in their underground hideout. There, they met [[Fanger]], an experimentalist who turned rats into flying creatures. His methods clashed with [[Thunderfoot]]'s ideals, though both shared a similar appreciation for freedom and nature, despite their differing approaches. Despite their shared sentiments, they struggled to find common ground.
+
+[[Roderick]], the leader of the rebel group known as "[[The Dreamers]]," then offered a place for Gosha and his sister to rest so that she could recover from her fog-induced exhaustion, and just before he bid the two siblings goodbye, he teased of a differing approach to violence to end the conflict with Perison’s ruler.
