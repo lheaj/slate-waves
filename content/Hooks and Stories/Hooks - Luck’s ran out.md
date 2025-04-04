@@ -1,8 +1,8 @@
 “That’s the last one… Pickle” jested the tall man with a death stare and a sly smirk, bathed in intoxicating fumes, legs crossed as he balanced backward on a rotten chair. The look on his stern face, unmoved, fixated on the goblin playing with the last hand of the day. The green creature, an improbable gambler dressed in priesthood robes, was about to bet the entire charity donations from his circle of devotees in pursue of the irresistible instinct to win at something. Unfortunately for the goblin, his questionable faith would not guide him to the right cards today either.
 
-“Oh, Orcus eat you, you scum! You and your luck will run out one day Gideon! Screw you, rotten little pig, think you’re so big and grand having a bunch of halfwit bandits and that turd-crazy hag do your dirty work for you while you sit around smooching with your pretty-princess. You, sick piece of Kobold refuse, are good for nothing! But one day your luck will run out! I tell you!”
+“Oh, Orcus eat you, you scum! You and your luck will run out one day [[Gideon Blackbirch]]! Screw you, rotten little pig, think you’re so big and grand having a bunch of halfwit bandits and that turd-crazy hag do your dirty work for you while you sit around smooching with your pretty-princess. You, sick piece of Kobold refuse, are good for nothing! But one day your luck will run out! I tell you!”
 
-Gideon was already walking out of the Jemma Velozi shisha bar, waving at the different cast of questionable attendants of the lowest of places in Smallport, counting his cash, styling a big smile, deaf to the loser’s rant.
+Gideon was already walking out of the Jemma Velozi shisha bar, [[The Jagged Lady]] , waving at the different cast of questionable attendants of the lowest of places in Smallport, counting his cash, styling a big smile, deaf to the loser’s rant.
 
 “I tell you” the goblin continued “You’re meddling with the wrong stuff Gideon, rigging card games is a thing but playing with explosive is another, it will bust up right in you’re a**..!!”
 

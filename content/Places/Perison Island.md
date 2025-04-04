@@ -2,7 +2,7 @@ _“The sun is blurred behind grey clouds melting into a conically shaped mound 
 
 The island is a gloomy and dark place, the landmark is littered with mining refuse and pollution from the smelting of a large [[CO7]] deposit. The polluted air is more than just combustion, [[Violet - The Witch of Perison]], the local ruler, poisons the air with a mind-numbing substance that make people lose their will and forget about their dreams. [[The Menagerie]] have made a deal with Violet, they refurnish her stock with the fluids of mind control, and in exchange she follows on three tasks:
 
--            She has the people build a large quantity of explosives with the designs of [[Borbor]]. The bombs are set to spray out a liquid and gas substance at the same time.
+- She has the people build a large quantity of explosives with the designs of [[Borbor Roctofellor]]. The bombs are set to spray out a liquid and gas substance at the same time.
 
 Any creature breathing the Perison fog has constant disadvantage on Wisdom saving throws.
 

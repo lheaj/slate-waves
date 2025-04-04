@@ -4,4 +4,4 @@ The inhabitants of Smallport seized the opportunity to transform their land into
 
 The Naval Port, nestled in the northwest part of town, welcomes small to medium-sized ships seeking mercantile exchanges of precious goods and access to the city’s market. Larger ships often stop by Smallport to refuel their CO7 reserves, bringing in substantial revenue for the town's fuel dealers. Meanwhile, the New Bazaar, located on the island's inner western side, hosts buyers and sellers of virtually anything discovered above or underwater—and even some items that defy description, like a machine to remove foot calluses or a flamethrower that shoots green flames.
 
-In this vibrant marketplace, the richest patron is [[Garabatta]], a cunning green goblin. His closest competitor is [[Borbor]] Roctofellor, a stout dwarf known as “Baldie.”
+In this vibrant marketplace, the richest patron is [[Garabatta]], a cunning green goblin. His closest competitor is [[Borbor Roctofellor]] Roctofellor, a stout dwarf known as “Baldie.”

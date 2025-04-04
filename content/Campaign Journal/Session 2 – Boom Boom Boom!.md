@@ -4,8 +4,8 @@ Once Vera had taken the elderly couple under her care, she rewarded the group wi
 
 The weary party found refuge at the [[The Jagged Lady]]. As her new companions slept, Vanessa met with her superior, Gideon, who expressed his displeasure at her lack of progress. He informed her of his imminent departure to [[Watersafe]] for business and cautioned her against further failings.
 
-To further their investigation into Elyse, Marco’s missing friend, the group heeded Garabatta’s advice and ventured to [[Borbor]]’s mansion. There, they goaded the two guards into granting them entry. Inside, they faced Anita, the automaton maid, and overcame an army of cute but deadly bomblings—miniature bots with a penchant for explosive mischief.
+To further their investigation into Elyse, Marco’s missing friend, the group heeded Garabatta’s advice and ventured to [[Borbor Roctofellor]]’s mansion. There, they goaded the two guards into granting them entry. Inside, they faced Anita, the automaton maid, and overcame an army of cute but deadly bomblings—miniature bots with a penchant for explosive mischief.
 
-Their search yielded a mysterious work order, urging [[Borbor]] to maintain his arm production, and a photograph of the dwarf in the company of a green goblin. Satisfied with their discoveries, the party withdrew to the [[The Jagged Lady]], preparing for their final day before the scheduled competition.
+Their search yielded a mysterious work order, urging [[Borbor Roctofellor]] to maintain his arm production, and a photograph of the dwarf in the company of a green goblin. Satisfied with their discoveries, the party withdrew to the [[The Jagged Lady]], preparing for their final day before the scheduled competition.
 
 But before tucking in for another night, they decided to wander the bustling market once more.
