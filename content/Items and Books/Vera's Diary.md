@@ -4,6 +4,6 @@ Today was hard. The air is thick with the scent of antiseptic and the hum of [[R
 
 I owe my life to [Dr. Elen Voss](Actors/Dr.%20Elen%20Voss.md), a woman whose brilliance and compassion knew no bounds. It was her unwavering dedication that pulled me back from the brink when [Metallosis](Miscellaneous/Metallosis.md) and [Rustlung](Miscellaneous/Rustlung.md) had ravaged my body. I remember the countless hours she spent by my side, her steady hands and calm voice guiding me through the darkest moments. Her innovative treatments and relentless pursuit of a cure gave me a second chance at life, and for that, I am eternally grateful._
 
-Working here at [Rivet Recovery](Places/Rivet%20Recovery.md), I strive to honour her legacy. Each day, I see the faces of those who suffer as I once did, and I am driven by a fierce determination to help them. The hospital is a beacon of hope in this fragmented world, a place where the fallen can find solace and healing._
+Working here at [Rivet Recovery](Rivet%20Recovery.md), I strive to honour her legacy. Each day, I see the faces of those who suffer as I once did, and I am driven by a fierce determination to help them. The hospital is a beacon of hope in this fragmented world, a place where the fallen can find solace and healing._
 
 _For now, I will continue to do my part, one patient at a time, carrying forward the torch that Dr. Voss lit. Her spirit lives on in every life we save, every wound we heal, and every heart we touch._

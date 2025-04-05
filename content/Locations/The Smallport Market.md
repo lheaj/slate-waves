@@ -1,4 +1,4 @@
-_“A torrent of people from every species inundates clear cobble-stone streets overcrowded with their tangible excitement, perusing through a labyrinth of eccentric market stands. The loud chanting of merchants calls every passerby to take a peek at everything from heavy artillery to home-made dream cakes.”_
+>“A torrent of people from every species inundates clear cobble-stone streets overcrowded with their tangible excitement, perusing through a labyrinth of eccentric market stands. The loud chanting of merchants calls every passerby to take a peek at everything from heavy artillery to home-made dream cakes.”_
 
 Bustling with life, the market is the vibrant heart of [[Smallport]], pulsing with the lifeblood of commerce and [[CO7]]. Over time, the hodgepodge of stands evolved into structured shops, carpeting the area with narrow, capillary alleys for curious buyers to navigate and explore the diverse wares on display.
 
