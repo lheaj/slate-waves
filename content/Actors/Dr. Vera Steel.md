@@ -4,6 +4,13 @@ Vera is a short slim woman, dressed in a half plate armor with a golden cross em
 
 Vera is a survivor of both [[Rustlung]] and [[Metallosis]], she was saved by young prodigy doctor named [[Dr. Elen Voss]], and since her recovery, she has dedicated her life to tending for the sick in [[Smallport]]. She acts as general manager of the [[Rivet Recovery]] Hospital but is also the self-appointer defender of that same establishment and won’t shy away from macing to the face any bandit eyeing through the hospital supplies.
 
+#### Traits
+- **Personality**: Vera has not time to lose as there is always patients needed her attention. She appreciate honesty and brevity, and will be sympathetic to ones demonstrating ownership of a kind soul.
+- **Ideal**: "I was saved by an angel and will do my utmost to make my life worth it."
+- **Bond**: Vera feels a mix of loyalty and adoration for [[Dr. Elen Voss]]. She has also devoted her life to the [[Rivet Recovery]] and won't ever travel far from it.
+- **Flaw**: Will scarify herself for others, even if they are not deserving. 
+
+
 #### Crisis at the Rivet Recovery
 
 Yesterday, a patient from a cargo ship arrived in dire conditions. She wasn’t present to see them and only speaks about reports given to her. The patient was shivering with high fever and mumbling meaningless sentences, he would occasionally burst into laughs and had convulsion fits so strong he had to be restrained. This early morning the nurse tending to him was found dead, her head split with an iron bar ripped clean from the patients bed. The Hospital was shortly after evacuated.

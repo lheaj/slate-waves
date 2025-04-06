@@ -14,10 +14,10 @@ The once business partner dwarf, is guilty of having offered a job opportunity t
 Sadly, after the Watersafe's society collapse, Garabatta lost all contacts with Patricia, and blames her presumed death on his previous associate.
 
 #### Traits
-*Personality*: Thoughtful and curious. Garbatta is suspicious of others and always on the hunt for the best deal, in every matter, be it business or war.
-*Bonds*: His business in Smallport and his undying love for the memory of Patricia.
-*Ideal*: "I'll transform Smallport into Bigoport. You'll see Patricia, one day you will see."
-*Flaws*: He won't let go of the past.
+**Personality**: Thoughtful and curious. Garbatta is suspicious of others and always on the hunt for the best deal, in every matter, be it business or war.
+**Bonds:** His business in Smallport and his undying love for the memory of Patricia.
+**Ideal:** "I'll transform Smallport into Bigoport. You'll see Patricia, one day you will see."
+**Flaws**: He won't let go of the past.
 
 
 

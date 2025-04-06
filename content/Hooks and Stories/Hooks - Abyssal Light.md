@@ -26,4 +26,4 @@ The emerald light exploded into a blinding brightness.
 
 Gosha’s eyes opened calmly to Smallport sunshine timidly peering through the poorly closed curtains.
 
-[Water Lion](Actors/Water%20Lion.md)
+[Water Lion](Water%20Lion.md)

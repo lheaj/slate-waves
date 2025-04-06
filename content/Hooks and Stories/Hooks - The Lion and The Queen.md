@@ -64,7 +64,7 @@ She turned to see her king eying his Queen. The man of which she had long dreame
 
 The king hinted a smile and crooked his head, with aching heart he hugged and kissed his Queen nonetheless.
 
-And the Queen was happy. And the Queen was at peace. She found her King in the fields of the [Water Lion](Actors/Water%20Lion.md)’s dream.
+And the Queen was happy. And the Queen was at peace. She found her King in the fields of the [Water Lion](Water%20Lion.md)’s dream.
 
 The narrator stopped and looked at the cubs, the boy and the tiger now lay in identical position with their belly to the ground, tense on their elbows.
 

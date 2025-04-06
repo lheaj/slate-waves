@@ -1,6 +1,6 @@
 As recounted by Sir Le-Boubouche:
 
-“Not that long ago, in a world now buried under the waves, great continents were wiped clean of their histories, settlements, and peoples. Blabbers charlatans and clerics whisper of a cataclysmic deluge from the heavens, a divine punishment that shattered stone and wood, drowning entire civilizations. Jibber-jabber. [Cataclysm](History/Cataclysm.md) it was, but if you ask me there was nothing unscientific about it, just darn luck evolution wanted us to boot-off the face of this world.
+“Not that long ago, in a world now buried under the waves, great continents were wiped clean of their histories, settlements, and peoples. Blabbers charlatans and clerics whisper of a cataclysmic deluge from the heavens, a divine punishment that shattered stone and wood, drowning entire civilizations. Jibber-jabber. [The Cataclysm](The%20Cataclysm.md) it was, but if you ask me there was nothing unscientific about it, just darn luck evolution wanted us to boot-off the face of this world.
 
 Forests, mountains, deserts, and cities all vanished beneath relentless torrents, falling from a dark, sunless sky. The rains reshaped the world into a patchwork of isolated islands, once towering peaks, now adrift without their histories or resources.
 

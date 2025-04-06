@@ -1,6 +1,10 @@
+> HIHI! I remember that! The time I guzzled that and turned as blue as a blueberry pie for a whole week! What a riot that was! A finer shade of blue you've never seen, I tell you!"
+
 Tucked away in a far corner of the market, in a spot avoided by most visitors due to its cheap rent and out-of-the-way location, stands Aeramelhar's vibrant and eccentric shop. An alchemist gnome of dubious artistic taste, Aeramelhar sells her creations from a colorful and extravagant stall, brimming with vials, potions, and a boiling cauldron atop a large black oak table. Her enthusiastic gestures and ecstatic invitations to try her famous concoctions are hard to miss.
 
-Aeramelhar herself is as eccentric as her stand. She sports a black collared shirt and a long veiled gown, with her hair dyed in a riot of colors—purple, green, orange, yellow, and red. An old friend of [[Garabatta]], she describes the goblin as practical, grim, and greedy on the outside but with a soft heart. She believes he is good at heart, though time and circumstances have made him bitter and lonely, holding grudges like no other.
+Aeramelhar herself is as eccentric as her stand. She sports a black collared shirt and a long veiled gown, with her hair dyed in a riot of colors—purple, green, orange, yellow, and red. 
+
+An old friend of [[Garabatta]], she describes the goblin as practical, grim, and greedy on the outside but with a soft heart. She believes he is good at heart, though time and circumstances have made him bitter and lonely, holding grudges like no other.
 
 The gnome will also mention that her shop attracts the best customers and alchemists. She will fondly recount a strikingly handsome young man with an angelic visage who showed great interest in her wares, especially the red potion. Although she declined to sell it to him, she remembers how astute and polite he was, convinced he must have been the son of a wealthy and cultured merchant.
 

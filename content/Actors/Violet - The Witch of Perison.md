@@ -2,10 +2,8 @@
 
 Madame Rest Is a woman of striking beauty and cold demeanour. Her blood, mixed with alchemical substances, is the key to the mind-numbing serum that subjugates the population. She is ruthless in her pursuit of power and will stop at nothing to maintain control over the city. As a child, she was victim of violent acts by her father, a drunkard miner working on the first excavations on the Island. He would regurgitate his frustration for his poverty onto his only child. Her fate changed when a mage travelled through Perison in search of a precious gem. The wizard understood immediately the potential within the child and gifted her with knowledge. He left the “Book of Dreamless Nights” with Rest. The prodigy taught herself powerful incarnations, enacted revenge upon her father and in a few years took control of the town with the Dreamless Mixture. Her father’s constant remarks about poverty imprinted into Rest the ideal of happiness through economic betterment. She believe the citizens of the island are unable to achieve commercial success and only she can guide them to do so.
 
-**Personality Traits**: Calm demeanour and seemingly placid appearance hide a ruthless leader who’ll stop at nothing to hold power over Perison. Rest is kind with her citizens when they obey but will resort to murder and forceful control if necessary.
-
-**Ideal:** Only she can save the island from poverty.
-
-**Bond:** The only person to ever truly love her is Roderick. Alas, he has created an entire organization meant to uproot her, snuffing the light out of the feelings she held.
-
-**Flaw:** Arrogance fogs her judgment. She does not trust anybody to do her work.
+#### Traits
+- **Personality Traits**: Calm demeanour and seemingly placid appearance hide a ruthless leader who’ll stop at nothing to hold power over Perison. Rest is kind with her citizens when they obey but will resort to murder and forceful control if necessary.
+- **Ideal:** Only she can save the island from poverty.
+- **Bond:** The only person to ever truly love her is Roderick. Alas, he has created an entire organization meant to uproot her, snuffing the light out of the feelings she held.
+- **Flaw:** Arrogance fogs her judgment. She does not trust anybody to do her work.
