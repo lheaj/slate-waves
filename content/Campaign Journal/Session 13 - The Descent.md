@@ -1,0 +1,9 @@
+Upon reaching the designated location, Marco unveiled his dubious submarine: a rusty, dilapidated, and barely functioning brass vehicle. He, along with the pink Bugbear and Gosha's sibling, stayed behind to pilot the clunky contraption while the remaining five reluctantly boarded the machine (Thunderfoot particularly unwilling).
+
+The party made quick repairs to the loose components before descending into the ocean depths, heading toward Watersafe's entrance. Here, they encountered welcoming signs accompanied by a propaganda video extolling the visionary metropolis. The cheerful tone quickly darkened when the speaker was abruptly devoured, hinting at the dangers lurking within.
+
+Venturing further into the tunnel, the group encountered [[Dr. Richard Rhemors]], the original architect of [[Watersafe]]. What began as a confrontation escalated into chaos as they found themselves clashing with [[Brightblood]]-infected beings. The party fled through an underwater tunnel, narrowly avoiding disaster.
+
+The tunnel led to a vast chamber resembling a trade hangar, where they met [[Jazeer Hakrhah]], Vanessa's fiercely competitive colleague and bitter rival. The Tabaxi recounted the grim tale of [[Gideon Blackbirch]]'s ill-fated expedition, where his criminal crew was ambushed by a relentless infected horde. Gideon disappeared into the shadowy depths, and Jazeer now scouted cautiously, wary of awakening the slumbering creatures hidden in the dark.
+
+Unfortunately, Gosha's curiosity got the better of him, and he lit a lantern to illuminate the surroundings. The light awakened the monsters, unleashing chaos. Thom, controlled by his fear, dashed straight into the horde and met his inevitable fate: a swift knockout. His survival now hangs by a thread…

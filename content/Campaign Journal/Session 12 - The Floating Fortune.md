@@ -1,0 +1,7 @@
+Aboard a ship sailing to a destination far, far away, an eccentric cast of characters reveled in their journey through uncharted waters. Their tranquil voyage was abruptly disturbed as ominous clouds rolled in, transforming the day into a gray and stormy night over the vast ocean. Lightning streaked across the sky, and gale-force winds of otherworldly might tossed the vessel, instilling fear in its passengers.
+
+Amid the chaos, fortune favoured the group when they stumbled upon a larger ship gently swaying in the eye of the storm's calm centre. Boarding the mysterious vessel, they discovered it to be a floating casino. Gosha embraced the vibrant atmosphere, dancing endlessly, while the others surrendered to spiked drinks and deafening music, numbing their senses to the storm beyond.
+
+Their escapades took a wild turn as they freed a band of partially enslaved fairy runners, coerced into cocaine-fuelled races for the gamblers' entertainment. Thom then ventured into a private lounge for wealthy criminals and noble crime lords, where he performed a few woeful songs that, surprisingly, won over the questionable crowd (really?).
+
+The group then embarked on a quest to locate an amulet belonging to a Tiefling captain failing to sober up. She claimed the artefact held the power to influence the raging storm outside. Their investigation led them to a wide-bellied man presenting himself as the ship's owner, whom they managed to half-coerce into revealing the artefact's whereabouts…
