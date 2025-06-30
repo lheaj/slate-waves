@@ -1,0 +1,7 @@
+The fight with the infected was ruthless, but the party managed to save most of the guests from their once  co-citizens. In the chaos of battle [[Dr. Richard Rhemors]], dropped his disguise and tried to kidnap [[Regina Tusseaux]], chanting of a revolution to come and the wish to make her queen of the new Watersafe, one controlled by Richard himself and under the blight of [[Brightblood]]. Gosha heroically stepped in the middle, uncaring of his own safety and managed to rescue the young heiress, now forever grateful. Richard retreated, teasing his plan to escape Watersafe with the infected and spread the plague onto the world above.
+
+The group then decided to go back to [[Dr. Elen Voss]] laboratory, to see if she could provide a cure to the maddening disease. After a brief discussion, Elen tried her cure on the infected specimens in her laboratory. Unfortunately, one, the largest, turned into a rampart hulk bent on dealing damage and vomiting acid onto the presents. The party barely managed to put the failed experiment down thanks to vomit-launching weapons and... tenacity?
+
+The rest of the specimen benefitted from the injection, and was cured of their brightblood symptoms. Among them was [[Ronald Crankle]], who was not anxious to return to his previous wife [[Vexi Crinkle]], quote "There is a tenth circle in hell just for that monster".
+
+Armed with syringes loaded with a cure for Brightblood, the group was ready to venture to fight Richard and thwart his maniacal plans.

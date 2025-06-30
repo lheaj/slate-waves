@@ -1,0 +1,11 @@
+Chances to continue their underwater voyage were thinning as the group was encircled by scores of Brightblood infected. Right after Thom, prisoner of his own fear, rushed into the dark hangar, Gosha, Marlin and Thunderfoot used all their abilities to cleave through scores of Zombified citizens and reach the bard. Thom then mustered his courage, did some soul-searching (and looked at his character sheet) and unleashed thunderwaves with his booming lung-horn. 
+
+The party advanced to the end of the room to find a Giant infected, trapped in there, madly looking for a "Doctor". With quick wit and the help of some magic illusions, they managed to distract the distraught creature and make their way to an upstairs balcony leading to glass tunnels away from the hangar, where the Giant was left to roam through empty boxes for a cure that would never arrive. [[Gideon Blackbirch]] and [[Jazeer Hakrhah]] used this chance to vanish, leaving behind the party with Vanessa to fiedl through [[Watersafe]]'s dangers.
+
+The map in Marlin's possession lead through the tunnels to [[Pressure Point Plaza]], an underwater market where Vanessa was free to pick-pocket some unwary wealthy dwarves. There they met [[Patricia Cotton]], who was being harassed by a couple of Ogres looking down on small creatures. The group then offered to take her letter to [[Garabatta]] back in [[Smallport]] were they ever to see him again.
+
+Thom visited an armoury, and asked for a custom made weapon to fit his fighting style (ramming people with a trumpet). Rupert, the owner of the shop, was too busy sobbing away his sorrow and foretelling his own death by crushing debts owned to the terrible [[Ratzlovich]]. The party offered to help mediate with the loan issue in exchange for a shiny new murder-toy for Thom.
+
+Sat at the [[Pressure Cup]] was [[Regina Tusseaux]], the rich heir and owner of the [[Hotel Tusseaux]]. She demanded a night of fun in exchange for her friendship and invite to her hotel and the [[Tusseaux Ball]]. The party accepted, and decided to take Regina to the [[Coral Arcade]], which happened to be the location of [[Ratzlovich]] lending business. 
+
+There, Vanessa overheard [[Jazeer Hakrhah]] speaking to someone about the failed kidnapping of [[Princess La'Ture]], bringing the Vulture closer to finding the truth about her missing sister.

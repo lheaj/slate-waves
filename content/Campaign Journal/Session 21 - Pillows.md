@@ -1,0 +1,5 @@
+After meshing their smell with the putrid rests of other infected, vomit cascades, and other unidentifiable smelly object, the group ventured forth through the mass of migrating infected, disguised as zombies themselves. 
+
+They first stopped at the Cushion Shop, to take a quick rest and bring Regina to a place she loved dearly. Inside they found Soren Vex, parading as the owner of the shop while hiding pile of stolen loot within pillow cases. After an encounter with Soren's past night fling twin sisters, and agreeing to split the stolen goods, the party departed for the Observatory. The building, dark and full of terrors was in truth a research centre, now infested by Richard's mind-controlled infected citizens. 
+
+Fighting their way trough multiple rooms, the group made it through the first floor not unscathed. Thom, especially eager to venture forth, battled a small-size dog to death and lured an exploding fire-skeleton to bomb him along with the rest of the group
